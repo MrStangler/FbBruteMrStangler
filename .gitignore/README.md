@@ -1,10 +1,8 @@
 # fbbrute
 
-
-# Update Versi 2
-https://github.com/Senitopeng/KumpulanFbbrute
+#Terimakasih Telah menggunakan Tools Saya😊😅😂
 
 
 
-# Tutorial Web Cek
-https://www.senitopeng.xyz/
+
+
